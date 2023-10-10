@@ -1,5 +1,5 @@
-transfem who likes to mod things in many ways
+transfems who like to mod things
 
-tech nerd
+a lot of us are tech nerds
 
-she/her
+collectively use it/they
